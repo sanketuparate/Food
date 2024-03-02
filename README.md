@@ -1,4 +1,4 @@
-![Screenshot (109)](https://github.com/sanketuparate/Food/assets/81017631/cf42e3d5-d933-4eeb-8b02-4c5ed248da47)The site is an Under Construction!!!!!!!!!
+The site is an Under Construction!!!!!!!!!
 
 ![Screenshot (102)](https://github.com/sanketuparate/Food/assets/81017631/8d960d82-8427-40f3-b1cd-f978effbf9e8)
 ![Screenshot (101)](https://github.com/sanketuparate/Food/assets/81017631/069a5d75-0195-4339-b668-fbe92b28177f)
